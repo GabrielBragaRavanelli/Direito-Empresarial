@@ -5,7 +5,7 @@ Desconsideração da personalidade jurídica
 Formas da esconsideração da personalidade jurídica
  - Força Maior
    -
- - Força menor
+ - Força Menor
    -
 Descosideração Inversa
 -
